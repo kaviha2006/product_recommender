@@ -67,8 +67,6 @@ B.E. CSE, V.S.B College of Engineering Technical Campus
 Email: kaviharavichandran2006@gmail.com
 GitHub: https://github.com/kaviha2006
 
-Let me know if you'd like a PDF of this or help pasting it into GitHub.
-
 
 
 
