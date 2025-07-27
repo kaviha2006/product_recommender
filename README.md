@@ -67,17 +67,3 @@ B.E. CSE, V.S.B College of Engineering Technical Campus
 Email: kaviharavichandran2006@gmail.com
 GitHub: https://github.com/kaviha2006
 
-
-
-
-
-
-
-
-
-
-Tools
-
-
-
-ChatGPT can make mistakes. Check important info. See Cookie Preferences.
